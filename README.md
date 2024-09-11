@@ -1,6 +1,6 @@
 # Ruslan Shairakhmetov - Data Analyst & Developer
 
-**Location:** Landau/Isar, Germany  
+**Location:** Bavaria, Germany  
 **Email:** 4507208@gmail.com
 
 ## About Me
